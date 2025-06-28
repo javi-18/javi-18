@@ -4,4 +4,4 @@
 
 * Currently  a student at Universidad Técnica Federico Santa María
 
-* Work as an Image Analyst in Woodtech SA
+* Work as an Image Analyst in Woodtech SA (Jan 2025 - Feb 2025)
